@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **muskanraj2702@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1G7tAm5VunARfRpJrPPBVWT_7bTfFA8gp/view?usp=sharing](https://drive.google.com/file/d/1G7tAm5VunARfRpJrPPBVWT_7bTfFA8gp/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1VFtCMuJh8eAmp1zc7dK23AXkhSWi3MkE/view?usp=drive_link](https://drive.google.com/file/d/1VFtCMuJh8eAmp1zc7dK23AXkhSWi3MkE/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
